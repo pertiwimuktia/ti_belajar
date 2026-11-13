@@ -1,2 +1,2 @@
-# TI_Belajar
+# TI_Belajar (Versi Nama Kelompok)
 indah muktia pertiwi
